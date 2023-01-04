@@ -1,0 +1,2 @@
+# ServerName-Setup
+ᴘᴇʀꜱᴏɴᴀʟ
